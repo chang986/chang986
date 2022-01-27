@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
-三大境界：
 
 昨夜西风凋碧树，独上高楼，望尽天涯路。
 
